@@ -4,6 +4,6 @@
 💻 Passionate and love learning new technologies</br>
 🌱 Always curious, always exploring</br>
 📍 Based in Karnataka, India
-📸 Find me on Instagram: [@your_instagram](https://instagram.com/paviiithra__)
+📸 Find me on Instagram: [@paviiithra__](https://instagram.com/paviiithra__)
 
 Thanks for stopping by! 😊
